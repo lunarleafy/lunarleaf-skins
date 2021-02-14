@@ -1,7 +1,7 @@
 # Skins iceflare uses on osu!
 
-Many of these skins are just personal edits of the originals
-![]Mostly in order of newest to oldest, but some are just in order of how much they're used
+Many of these skins are just personal edits of the originals<br>
+Mostly in order of newest to oldest, but some are just in order of how much they're used
 
 # [varv-ice](http://www.mediafire.com/file/8adiaapvuzckcce/varv_ice_edit.osk/file) 
 ![](https://osu.ppy.sh/ss/16212331/05fd)
