@@ -8,3 +8,6 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 
 # [yugen (dark sliders + red cursor)](http://www.mediafire.com/file/z4gb928itrfrwvc/yugen_%2528dark_sliders_%252B_red_cursor%2529.osk/file) 
 ![](https://osu.ppy.sh/ss/16212359/efca)
+
+# [JesusOmega: Planets (BTMC's edit)](https://drive.google.com/file/d/1DJl9BhBlzVQgSHxloTI2LOVPFOPm7GAr/view?usp=sharing) 
+![](https://osu.ppy.sh/ss/16212385/b500)
