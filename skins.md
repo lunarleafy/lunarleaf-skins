@@ -12,5 +12,11 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [JesusOmega: Planets (BTMC's edit)](https://drive.google.com/file/d/1DJl9BhBlzVQgSHxloTI2LOVPFOPm7GAr/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16212385/b500)
 
+# [Whitecat (small cursortrail](http://www.mediafire.com/file/8k79odjg0o6eszr/Whitecat+(small+cursortrail).osk/file) 
+![](https://osu.ppy.sh/ss/16212420/5878)
+
+# [Rafis HDDT 2018](https://circle-people.com/wp-content/Skins/Rafis/Rafis%202018-03-26%20HDDT.osk) 
+![](https://osu.ppy.sh/ss/16212409/aaad)
+
 # [- Taiga -](http://www.mediafire.com/file/zcdazakay1iqhqq/Taiga.osk/file) 
 ![](https://i.imgur.com/uTmAkHu.jpg)
