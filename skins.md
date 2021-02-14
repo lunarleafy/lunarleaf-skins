@@ -12,6 +12,9 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [JesusOmega: Planets (BTMC's edit)](https://drive.google.com/file/d/1DJl9BhBlzVQgSHxloTI2LOVPFOPm7GAr/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16212385/b500)
 
+# [Aristia (ryukice Edit)](http://www.mediafire.com/file/h18ho2m9ae8gjsu/Aristia(ryukice+Edit).osk/file) 
+![](https://i.imgur.com/6kesJTB.jpeg)
+
 # [Whitecat (small cursortrail](http://www.mediafire.com/file/8k79odjg0o6eszr/Whitecat+(small+cursortrail).osk/file) 
 ![](https://osu.ppy.sh/ss/16212420/5878)
 
