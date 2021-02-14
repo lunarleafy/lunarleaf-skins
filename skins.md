@@ -33,3 +33,6 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [Yaong's Ameliorate (iceflare edit)](https://www.mediafire.com/file/n07letkxdmc4hd7/Yaong%2527s_Ameliorate_%2528iceflare_edit%2529.osk/file) 
 ![](https://i.imgur.com/OOIsViR.jpg)
 
+# [SeoulSquashIce](https://www.mediafire.com/file/2zee5e7l55uzf4h/SeoulSquashIce.osk/file) 
+![](https://osu.ppy.sh/ss/16212491/b899)
+
