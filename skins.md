@@ -20,3 +20,6 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 
 # [- Taiga -](http://www.mediafire.com/file/zcdazakay1iqhqq/Taiga.osk/file) 
 ![](https://i.imgur.com/uTmAkHu.jpg)
+
+# [Aristia (dark sliders)](http://www.mediafire.com/file/zr4h90yw3g60sbv/Aristia(dark+sliders).osk/file) 
+![](https://osu.ppy.sh/ss/16212436/cb10)
