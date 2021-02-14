@@ -33,6 +33,9 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [Yaong's Ameliorate (iceflare edit)](https://www.mediafire.com/file/n07letkxdmc4hd7/Yaong%2527s_Ameliorate_%2528iceflare_edit%2529.osk/file) 
 ![](https://i.imgur.com/OOIsViR.jpg)
 
+# [Minimalist Lolicon (iceflare's version)](https://www.mediafire.com/file/smwoo69fkihmdv8/Minimalist_Lolicon_%2528iceflare%2527s_version%2529.osk/file) 
+![](https://osu.ppy.sh/ss/16212511/3da9)
+
 # [Selyu CursorX](https://www.mediafire.com/file/7i7fhy77724f6c7/Selyu_CursorX.osk/file) 
 ![](https://i.imgur.com/wMFWAN2.jpg)
 
