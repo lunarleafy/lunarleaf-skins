@@ -29,3 +29,7 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 
 # [Aristia (dark sliders)](http://www.mediafire.com/file/zr4h90yw3g60sbv/Aristia(dark+sliders).osk/file) 
 ![](https://osu.ppy.sh/ss/16212436/cb10)
+
+# [Yaong's Ameliorate (iceflare edit)](https://www.mediafire.com/file/n07letkxdmc4hd7/Yaong%2527s_Ameliorate_%2528iceflare_edit%2529.osk/file) 
+![](https://i.imgur.com/OOIsViR.jpg)
+
