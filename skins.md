@@ -9,6 +9,9 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [- Taiga v2 - (WIP)](http://www.mediafire.com/file/epohvnt3xmoc80b/-_Taiga_v2_-.osk/file) 
 ![](https://osu.ppy.sh/ss/16212460/32d7)
 
+# [Aristia (dark sliders)](https://www.mediafire.com/file/b1aojsn94k2dhxf/Aristia%2528dark_sliders%2529.osk/file) 
+![](https://i.imgur.com/PcKoD7B.jpg)
+
 # [Aristia (dark sliders + trail)](https://www.mediafire.com/file/8fguv498wz6erlw/Aristia%2528dark_sliders_%252B_trail%2529.osk/file) 
 ![](https://i.imgur.com/jrnfveb.jpg)
 
@@ -29,9 +32,6 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 
 # [- Taiga -](http://www.mediafire.com/file/zcdazakay1iqhqq/Taiga.osk/file) 
 ![](https://i.imgur.com/uTmAkHu.jpg)
-
-# [Aristia (dark sliders)](http://www.mediafire.com/file/zr4h90yw3g60sbv/Aristia(dark+sliders).osk/file) 
-![](https://osu.ppy.sh/ss/16212436/cb10)
 
 # [Yaong's Ameliorate (iceflare edit)](https://www.mediafire.com/file/n07letkxdmc4hd7/Yaong%2527s_Ameliorate_%2528iceflare_edit%2529.osk/file) 
 ![](https://i.imgur.com/OOIsViR.jpg)
