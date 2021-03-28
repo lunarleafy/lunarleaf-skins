@@ -15,6 +15,9 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [Aristia (dark sliders + trail)](https://www.mediafire.com/file/8fguv498wz6erlw/Aristia%2528dark_sliders_%252B_trail%2529.osk/file) 
 ![](https://i.imgur.com/jrnfveb.jpg)
 
+# [Aristia (smooth)](https://www.mediafire.com/file/8fguv498wz6erlw/Aristia%2528dark_sliders_%252B_trail%2529.osk/file) 
+![](https://i.imgur.com/BiOcajZ.jpg)
+
 # [yugen (dark sliders + red cursor)](http://www.mediafire.com/file/z4gb928itrfrwvc/yugen_%2528dark_sliders_%252B_red_cursor%2529.osk/file) 
 ![](https://osu.ppy.sh/ss/16212359/efca)
 
