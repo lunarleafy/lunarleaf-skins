@@ -7,7 +7,7 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 ![](https://i.imgur.com/fXQF1Cr.png)
 
 # [varv-ice](http://www.mediafire.com/file/8adiaapvuzckcce/varv_ice_edit.osk/file) 
-![](https://osu.ppy.sh/ss/16212331/05fd)
+![](https://i.imgur.com/GGCsmjS.png)
 
 # [Tuna (CK+ice) v1.1](https://www.mediafire.com/file/gqoq5k2pmm9du5b/-++++++++#+Tuna+(CK+ice)+v1.1.osk/file) 
 ![](https://i.imgur.com/hFAPplN.jpg)
