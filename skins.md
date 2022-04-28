@@ -3,6 +3,10 @@
 Many of these skins are just personal edits of the originals<br>
 Mostly in order of newest to oldest, but some are just in order of how much they're used
 
+
+# [iceflare-sytho-rafis](https://www.mediafire.com/file/3dxx2ec7ubbfz9c/iceflare-sytho-rafis.osk/file) 
+![](https://i.imgur.com/WsyDdUF.jpeg)
+
 # [varv-ice v3](https://www.mediafire.com/file/urptncrbpoms70d/-_varv-ice_v3_-.osk/file) 
 ![](https://i.imgur.com/WxnV7jH.jpeg)
 
