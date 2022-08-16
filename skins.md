@@ -3,6 +3,8 @@
 Many of these skins are just personal edits of the originals<br>
 Mostly in order of newest to oldest, but some are just in order of how much they're used
 
+# [Walnut 1.0 Pink](https://www.mediafire.com/file/vgrgmheuo45xla9/-+++++++++《HT》+Walnut+1.0+『clrs』pink.osk/file)
+![](https://i.imgur.com/XCzIoVN.png)
 
 # [iceflare-sytho-rafis](https://www.mediafire.com/file/3dxx2ec7ubbfz9c/iceflare-sytho-rafis.osk/file) 
 ![](https://i.imgur.com/WsyDdUF.jpeg)
