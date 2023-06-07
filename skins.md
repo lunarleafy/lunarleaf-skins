@@ -6,6 +6,9 @@ Mostly in order of newest to oldest, but some are just in order of how much they
 # [BlooXoo ice edit](https://www.mediafire.com/file/53d37rep99jhnmw/-+『BlooXoo』+-+ice+edit.osk/file)
 ![](https://i.imgur.com/yF62UQm.png)
 
+# [Fierymod ryuk/ice edit](https://www.mediafire.com/file/9wwio6ukssocch1/fierymod+v8+ryukice+edit.osk/file)
+![](https://i.imgur.com/KucNSoe.png)
+
 # [Walnut 1.0 Pink](https://www.mediafire.com/file/vgrgmheuo45xla9/-+++++++++《HT》+Walnut+1.0+『clrs』pink.osk/file)
 ![](https://i.imgur.com/XCzIoVN.png)
 
