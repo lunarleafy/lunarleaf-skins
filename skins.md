@@ -3,10 +3,13 @@
 Many of these skins are just personal edits of the originals<br>
 Mostly in order of newest to oldest, but some are just in order of how much they're used
 
-# [BlooXoo ice edit (HD/HDHR)](https://www.mediafire.com/file/53d37rep99jhnmw/-+『BlooXoo』+-+ice+edit.osk/file)
+# [Aristia Edit Yellow Trail](https://www.mediafire.com/file/88641o6wuhp27mv/-_Aristia_%252B_yellow_cursor.osk/file)
+![](https://i.imgur.com/ThJPf97.png)
+
+# [BlooXoo ice edit](https://www.mediafire.com/file/53d37rep99jhnmw/-+『BlooXoo』+-+ice+edit.osk/file)
 ![](https://i.imgur.com/yF62UQm.png)
 
-# [Fierymod ryuk/ice edit (NM/HR)](https://www.mediafire.com/file/9wwio6ukssocch1/fierymod+v8+ryukice+edit.osk/file)
+# [Fierymod ryuk/ice edit](https://www.mediafire.com/file/9wwio6ukssocch1/fierymod+v8+ryukice+edit.osk/file)
 ![](https://i.imgur.com/KucNSoe.png)
 
 # [Walnut 1.0 Pink](https://www.mediafire.com/file/vgrgmheuo45xla9/-+++++++++《HT》+Walnut+1.0+『clrs』pink.osk/file)
