@@ -1,4 +1,4 @@
-# Skins iceflare uses on osu!
+# Skins lunarleaf uses on osu!
 
 Many of these skins are just personal edits of the originals<br>
 Mostly in order of newest to oldest, but some are just in order of how much they're used
